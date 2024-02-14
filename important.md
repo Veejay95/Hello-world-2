@@ -1,0 +1,1 @@
+ You need to make sure you fully understand the work because it will help you learn and become really good at mastering new concepts.
